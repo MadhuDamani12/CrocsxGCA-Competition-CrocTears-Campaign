@@ -1,5 +1,5 @@
 # CrocsxGCA-Competition-CrocTears-Campaign
-# Croc Tears — National Competition Winner 🏆
+# Croc Tears — National Top 10 Competition Winner 🏆
 
 **Crocs x GCA: Early Talent Competition | Croctober 2026**
 
